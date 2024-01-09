@@ -1,1 +1,0 @@
-tolong review code saya
